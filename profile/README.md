@@ -1,3 +1,3 @@
 # Wilkommen bei NightX Community LTD
 
-https://www.nightx-community.net
+https://www.nightx-community.com
